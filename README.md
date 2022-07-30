@@ -6,7 +6,7 @@ with all the new technologies on the marked.
 
 **My guideline is "Code is like humor. When you have to explain it, it's bad"**
 
-### Want to connect with me 📫?
+### Want to connect with me? 📫
 
 </br>
 
